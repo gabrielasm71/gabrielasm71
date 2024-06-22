@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @gabrielasm71
+- 👀 I’m interested in anime 
+- 🌱 I’m currently learning cooking
+- ⚡ Fun fact: I like to eat
